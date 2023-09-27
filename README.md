@@ -1330,6 +1330,132 @@ The Mughal dynasty
 
 
 
+Who founded the Vijayanagar kingdom and city?
+In which region was the Vijayanagar kingdom located?
+How can the Vijayanagara period be divided in terms of dynasties?
+Who laid the foundation of Vijayanagar?
+What was the cause of conflict between Vijayanagar and the Bahmani kingdom?
+Who strengthened the city of Vidyanagar and renamed it Vijayanagar?
+What was the significant achievement of Deva Raya I during his reign?
+Which foreign traveller visited Vijayanagar during Deva Raya I's reign?
+Who invaded Vijayanagar during Deva Raya II's rule and exacted a war indemnity?
+What title was Deva Raya II known by, and what did it mean?
+Which famous poet was given the title 'Kavisarvabhauma' during Deva Raya II's reign?
+Who was the envoy from Shah Rukh who visited Vijayanagar during Deva Raya II's reign?
+Who founded the Saluva dynasty in Vijayanagar?
+Who succeeded Saluva Narsimha in the Saluva dynasty?
+In which year did Vasco Da Gama land in Calicut during Vijayanagar's rule?
+Which dynasty followed the Saluva dynasty in Vijayanagar?
+Who became the king after the assassination of Immadi Narsimha, the last Saluva ruler?
+Who placed Krishna Deva Raya on the throne?
+Which kingdom did Krishna Deva Raya win for Vijayanagar during his rule?
+Name three notable structures built by Krishna Deva Raya.
+What titles did Krishna Deva Raya take during his rule?
+What were the two works authored by Krishna Deva Raya that are extant?
+Who were the 'Ashtadiggajas' in Krishna Deva Raya's court?
+Who was the most illustrious ruler of the Deccan during the same time as Babur?
+Which Portuguese travellers visited Vijayanagar during the time of Krishna Deva Raya?
+Who succeeded Krishna Deva Raya as the ruler of Vijayanagar?
+During whose reign did Farnao Nunij, a Portuguese horse trader, visit Vijayanagar?
+Who ruled Vijayanagar after Achyuta Deva Raya?
+What event led to the destruction of the city of Vijayanagar?
+Who took Rama Raja prisoner and executed him during the Battle of Talikota?
+Which Portuguese traveller visited Vijayanagar in 1567-68 during the reign of Sadashiva Raya?
+Who ruled in the name of Sadasiva Raya after the end of the Aravidu Dynasty?
+Which city served as the capital after Vijayanagar was unable to repopulate its original city?
+How did Tirumala Raya divide his empire during his rule?
+When did the Aravidu dynasty end?
+What was the special feature of provincial administration in Vijayanagar?
+What was the special feature of village administration in Vijayanagar?
+What were the "Manyams” granted to the Ayangars in Vijayanagar?
+What were the names of the gold coins issued by Vijayanagara rulers?
+What was the Tar in the currency system used in Vijayanagar?
+What was the Jital in the currency system used in Vijayanagar?
+How did the status of women improve during the Vijayanagar Empire?
+Name the four Varnas or social classes in Vijayanagar society.
+Which social group in Vijayanagar was associated with weaving?
+What was Sahagaman in Vijayanagar society?
+What was Besabaga in Vijayanagar society?
+
+Harihar
+Bukka
+Sangama
+Kakatiyas
+Kampili
+Deccan
+Bahmani kingdom
+Raichur doab
+Vidyanagar
+Vaishnavas
+Jains
+Rais of Malabar
+Ceylon
+Nicolo de Conti
+Ahmad Shah I
+Sri Lanka
+Dindima
+Srinatha
+Kavisarvabhauma
+Abdur Razzak
+Saluva Narsimha
+Tirumal
+Immadi Narasimha
+Vasco Da Gama
+Tuluva
+Vir Narsimha
+Narsa Nayaka
+Saluva Timma
+Albuquerque
+Friar Luis
+Orissa (Gajapti kingdom)
+Vijaya Mahal
+Hazara Rama temple
+Vithal Swami temple
+Yavanaraja Sthapnachrya
+Bidar kingdom
+Andhra Bhoj
+Andhra Pitamaha
+Amuktamalyada
+Jambavati Kalyanam
+Ashtadiggajas
+Peddana
+Timmaya
+Bhattamurthi
+Dhurjati
+Mallan
+Raju Ramchandra
+Surona
+Tenali Ramkrishna
+Babur
+Duarte Barbosa
+Dominigo Paes
+Achyuta Deva Raya
+Farnao Nunij
+Venkata I
+Sadashiva Raya
+Rama Raja/Raya
+Hussain Nizam Shah I
+Caesar Frederick
+Tirumala Raya
+Sadasiva Raya
+Penugonda
+Nayankar System
+Ayngar System
+Manyams
+Varahas
+Pagodas
+Perta
+Fanam
+Tar
+Jital
+Medieval India
+Viprulu
+Rajulu
+Nalavajativaru
+Vipravinodins
+Kaikollas
+Sahagaman
+Besabaga
 
 
 
@@ -1481,132 +1607,6 @@ Forced labour.
 
 
 
-Who founded the Vijayanagar kingdom and city?
-In which region was the Vijayanagar kingdom located?
-How can the Vijayanagara period be divided in terms of dynasties?
-Who laid the foundation of Vijayanagar?
-What was the cause of conflict between Vijayanagar and the Bahmani kingdom?
-Who strengthened the city of Vidyanagar and renamed it Vijayanagar?
-What was the significant achievement of Deva Raya I during his reign?
-Which foreign traveller visited Vijayanagar during Deva Raya I's reign?
-Who invaded Vijayanagar during Deva Raya II's rule and exacted a war indemnity?
-What title was Deva Raya II known by, and what did it mean?
-Which famous poet was given the title 'Kavisarvabhauma' during Deva Raya II's reign?
-Who was the envoy from Shah Rukh who visited Vijayanagar during Deva Raya II's reign?
-Who founded the Saluva dynasty in Vijayanagar?
-Who succeeded Saluva Narsimha in the Saluva dynasty?
-In which year did Vasco Da Gama land in Calicut during Vijayanagar's rule?
-Which dynasty followed the Saluva dynasty in Vijayanagar?
-Who became the king after the assassination of Immadi Narsimha, the last Saluva ruler?
-Who placed Krishna Deva Raya on the throne?
-Which kingdom did Krishna Deva Raya win for Vijayanagar during his rule?
-Name three notable structures built by Krishna Deva Raya.
-What titles did Krishna Deva Raya take during his rule?
-What were the two works authored by Krishna Deva Raya that are extant?
-Who were the 'Ashtadiggajas' in Krishna Deva Raya's court?
-Who was the most illustrious ruler of the Deccan during the same time as Babur?
-Which Portuguese travellers visited Vijayanagar during the time of Krishna Deva Raya?
-Who succeeded Krishna Deva Raya as the ruler of Vijayanagar?
-During whose reign did Farnao Nunij, a Portuguese horse trader, visit Vijayanagar?
-Who ruled Vijayanagar after Achyuta Deva Raya?
-What event led to the destruction of the city of Vijayanagar?
-Who took Rama Raja prisoner and executed him during the Battle of Talikota?
-Which Portuguese traveller visited Vijayanagar in 1567-68 during the reign of Sadashiva Raya?
-Who ruled in the name of Sadasiva Raya after the end of the Aravidu Dynasty?
-Which city served as the capital after Vijayanagar was unable to repopulate its original city?
-How did Tirumala Raya divide his empire during his rule?
-When did the Aravidu dynasty end?
-What was the special feature of provincial administration in Vijayanagar?
-What was the special feature of village administration in Vijayanagar?
-What were the "Manyams” granted to the Ayangars in Vijayanagar?
-What were the names of the gold coins issued by Vijayanagara rulers?
-What was the Tar in the currency system used in Vijayanagar?
-What was the Jital in the currency system used in Vijayanagar?
-How did the status of women improve during the Vijayanagar Empire?
-Name the four Varnas or social classes in Vijayanagar society.
-Which social group in Vijayanagar was associated with weaving?
-What was Sahagaman in Vijayanagar society?
-What was Besabaga in Vijayanagar society?
-
-Harihar
-Bukka
-Sangama
-Kakatiyas
-Kampili
-Deccan
-Bahmani kingdom
-Raichur doab
-Vidyanagar
-Vaishnavas
-Jains
-Rais of Malabar
-Ceylon
-Nicolo de Conti
-Ahmad Shah I
-Sri Lanka
-Dindima
-Srinatha
-Kavisarvabhauma
-Abdur Razzak
-Saluva Narsimha
-Tirumal
-Immadi Narasimha
-Vasco Da Gama
-Tuluva
-Vir Narsimha
-Narsa Nayaka
-Saluva Timma
-Albuquerque
-Friar Luis
-Orissa (Gajapti kingdom)
-Vijaya Mahal
-Hazara Rama temple
-Vithal Swami temple
-Yavanaraja Sthapnachrya
-Bidar kingdom
-Andhra Bhoj
-Andhra Pitamaha
-Amuktamalyada
-Jambavati Kalyanam
-Ashtadiggajas
-Peddana
-Timmaya
-Bhattamurthi
-Dhurjati
-Mallan
-Raju Ramchandra
-Surona
-Tenali Ramkrishna
-Babur
-Duarte Barbosa
-Dominigo Paes
-Achyuta Deva Raya
-Farnao Nunij
-Venkata I
-Sadashiva Raya
-Rama Raja/Raya
-Hussain Nizam Shah I
-Caesar Frederick
-Tirumala Raya
-Sadasiva Raya
-Penugonda
-Nayankar System
-Ayngar System
-Manyams
-Varahas
-Pagodas
-Perta
-Fanam
-Tar
-Jital
-Medieval India
-Viprulu
-Rajulu
-Nalavajativaru
-Vipravinodins
-Kaikollas
-Sahagaman
-Besabaga
 
 
 
@@ -1669,7 +1669,78 @@ What sect was founded by Namadeva?
 Who was Eknath?
 - Eknath was a great scholar saint from Maharashtra known for writing a commentary on the Ramayana called the 'Bhavartha Ramayana' and another commentary on the eleventh book of the Bhagavata Purana.
 
-
+Who was Purandar Das?
+What did Purandar Das lay the foundations of?
+Who was Mirabai?
+Which Bhakti cult of Vaishnavism did Mirabai follow?
+Who was Vallabhacharya?
+What philosophy did Vallabhacharya propound?
+Who was Surdas?
+Who was Tulsidas?
+What are some of Tulsidas' celebrated works?
+Who founded the Vaishnava devotional movement in Assam?
+Who was Dadu Dayal?
+What did Dadu Dayal find?
+Who was Thyagaraja?
+Which deity did Thyagaraja adore?
+Who was the fountain-head of the Bhakti movement in Maharashtra?
+What did Jnanesvara/Jnanadeva write a long commentary on?
+Who was Namadeva?
+Who was the object of Namadeva's devotion?
+What sect was founded by Namadeva?
+Who was Eknath?
+What style of architecture did the Vijayanagar rulers produce?
+What were some distinct features of the Provida style of architecture?
+What were the important features of the Provida style architecture?
+Can you name some important temples associated with the Vijayanagar rulers' architecture?
+What practice did the Vijayanagar rulers start regarding temple walls?
+Give examples of temples with wall inscriptions of epic stories.
+Who founded the Bahmani kingdom, and where was its first capital?
+Who was Tajuddin Firoz Shah, and what was his contribution?
+What ports did Tajuddin Firoz Shah pay attention to in his kingdom?
+Which ruler transferred the Bahmani kingdom's capital from Gulbarga to Bidar?
+What language was introduced by Ibrahim Adil Shah as the court language?
+Who is credited with building the Gol Gumbaz, and what is it known for?
+Who built the famous Golconda Fort?
+Who was the greatest ruler of the Qutub Shahi dynasty, and what city did he found?
+What iconic monument did Muhammad Quli Qutub Shah build?
+What is the basis of the Bhakti movement's relationship between God and man?
+Where did the Bhakti movement first grow into a broad-based popular movement in South India?
+Who represented the intellectual side of Vaishnavism in the Bhakti movement's revival in the 11th century?
+What were the main features of the Bhakti movement?
+What is the key aspect of Bhakti worship according to the movement?
+Who was the earliest exponent of Bhakti movement and Vishitadvaita philosophy in South India?
+Which Bhakti saint of North India opened the doors of Bhakti without any distinction of birth, caste, or creed?
+Who was Kabir, and what were his beliefs?
+Who was Guru Nanak, and what did he establish?
+Who founded Gaudiya or Bengal Vaishnavism and was a great saint of Krishna Bhakti cult?
+Which Maithili saint-poet wrote thousands of love-ballads on Radha-Krishna?
+Purandar Das
+Mirabai
+Vallabhacharya
+Surdas
+Tulsidas
+Shankara Deva
+Dadu Dayal
+Thyagaraja
+Jnanesvara/Jnanadeva
+Namadeva
+Eknath
+Alauddin Hasan Bahman Shah (Hasan Gangu)
+Tajuddin Firoz Shah
+Ahmad Shah Wali
+Ibrahim Adil Shah
+Muhammad Adil Shah
+Quli Qutub Shah
+Muhammad Quli Qutub Shah
+Bhagyamati
+Charminar
+Ramanuja
+Ramananda
+Kabir
+Guru Nanak
+Chaitanya
+Vidyapati
 
 1
 What style of architecture did the Vijayanagar rulers produce?
@@ -1751,76 +1822,5 @@ Which Maithili saint-poet wrote thousands of love-ballads on Radha-Krishna?
 Vidyapati.
 
 
-Who was Purandar Das?
-What did Purandar Das lay the foundations of?
-Who was Mirabai?
-Which Bhakti cult of Vaishnavism did Mirabai follow?
-Who was Vallabhacharya?
-What philosophy did Vallabhacharya propound?
-Who was Surdas?
-Who was Tulsidas?
-What are some of Tulsidas' celebrated works?
-Who founded the Vaishnava devotional movement in Assam?
-Who was Dadu Dayal?
-What did Dadu Dayal find?
-Who was Thyagaraja?
-Which deity did Thyagaraja adore?
-Who was the fountain-head of the Bhakti movement in Maharashtra?
-What did Jnanesvara/Jnanadeva write a long commentary on?
-Who was Namadeva?
-Who was the object of Namadeva's devotion?
-What sect was founded by Namadeva?
-Who was Eknath?
-What style of architecture did the Vijayanagar rulers produce?
-What were some distinct features of the Provida style of architecture?
-What were the important features of the Provida style architecture?
-Can you name some important temples associated with the Vijayanagar rulers' architecture?
-What practice did the Vijayanagar rulers start regarding temple walls?
-Give examples of temples with wall inscriptions of epic stories.
-Who founded the Bahmani kingdom, and where was its first capital?
-Who was Tajuddin Firoz Shah, and what was his contribution?
-What ports did Tajuddin Firoz Shah pay attention to in his kingdom?
-Which ruler transferred the Bahmani kingdom's capital from Gulbarga to Bidar?
-What language was introduced by Ibrahim Adil Shah as the court language?
-Who is credited with building the Gol Gumbaz, and what is it known for?
-Who built the famous Golconda Fort?
-Who was the greatest ruler of the Qutub Shahi dynasty, and what city did he found?
-What iconic monument did Muhammad Quli Qutub Shah build?
-What is the basis of the Bhakti movement's relationship between God and man?
-Where did the Bhakti movement first grow into a broad-based popular movement in South India?
-Who represented the intellectual side of Vaishnavism in the Bhakti movement's revival in the 11th century?
-What were the main features of the Bhakti movement?
-What is the key aspect of Bhakti worship according to the movement?
-Who was the earliest exponent of Bhakti movement and Vishitadvaita philosophy in South India?
-Which Bhakti saint of North India opened the doors of Bhakti without any distinction of birth, caste, or creed?
-Who was Kabir, and what were his beliefs?
-Who was Guru Nanak, and what did he establish?
-Who founded Gaudiya or Bengal Vaishnavism and was a great saint of Krishna Bhakti cult?
-Which Maithili saint-poet wrote thousands of love-ballads on Radha-Krishna?
-Purandar Das
-Mirabai
-Vallabhacharya
-Surdas
-Tulsidas
-Shankara Deva
-Dadu Dayal
-Thyagaraja
-Jnanesvara/Jnanadeva
-Namadeva
-Eknath
-Alauddin Hasan Bahman Shah (Hasan Gangu)
-Tajuddin Firoz Shah
-Ahmad Shah Wali
-Ibrahim Adil Shah
-Muhammad Adil Shah
-Quli Qutub Shah
-Muhammad Quli Qutub Shah
-Bhagyamati
-Charminar
-Ramanuja
-Ramananda
-Kabir
-Guru Nanak
-Chaitanya
-Vidyapati
+
 
