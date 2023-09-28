@@ -1822,5 +1822,302 @@ Which Maithili saint-poet wrote thousands of love-ballads on Radha-Krishna?
 Vidyapati.
 
 
+Articles of Constitution
+Article 1-4: - The Union & its Territory
+• Article 1- Name and territory of the union.
+• Article 2 – Admission and Establishment of the new state.
+• Article 3 – Formation of new states and alteration of areas, 
+ boundaries, and the name of existing states.
+• Article 4 - Laws made under articles 2 and 3 to provide for the 
+ amendment of the First and the Fourth Schedules.
+Article 5-11: - Citizenship
+• Article 5 - Citizenship at the commencement of the constitution
+• Article 6 - Rights of citizenship of a certain person who has 
+ migrated to India from Pakistan
+• Article 7 – Rights of citizenship of certain Migrants to Pakistan
+• Article 8- To certain persons of Indian origin residing outside 
+ India
+• Article 9 – Person Voluntarily Acquiring Citizenship of a foreign 
+ state not to be Citizens of India
+• Article 10 - Continuance of rights of citizenship
+• Article 11 - Parliament to regulate the right of citizenship by 
+ law
+Article 12-35: - Fundamental Rights
+This part is known as “Magna Carta” of Indian Constitution.
+• Article 12 - Definition of the State
+• Article 13- Laws inconsistent with or in derogation of the 
+ fundamental rights.
+Total 6 Fundamental Rights in Indian Constitution.
+1. Right to Equality – Article 14 to 18
+• Article 14 - Equality before law. 
+• Article 15 - Prohibition of discrimination on grounds of religion, 
+ race, caste, sex or place of birth.
+• Article 16 - Equality of opportunity in matters of public 
+ employment. 
+• Article 17 - Abolition of Untouchability. 
+• Article18 - Abolition of titles.
+• Article 15 (4) & 16 (2) – Reservation of 27% in govt jobs to 
+ OBCs by mandal commission.
+• Articles 15 (6) & 16 (6) – Reservation of 10% in govt jobs to 
+ Economically Weaker Section (EWS)
+2. Right to Freedom – 19-22
+• Article 19 - Protection of certain rights regarding freedom of 
+ speech, etc.
+It included 6 Rights regarding freedom of –
+a) Speech & Expression b) Assembly 
+c) Residence d) Association
+e) Movement f) Profession
+Article 20 - Protection in respect of conviction for offences. 
+Article 21 - Protection of life and personal liberty.
+Article 21A - Right to education.
+Article 22 - Protection against arrest and detention in certain 
+ cases.
+3. Right against Exploitation – Article 23 & 24
+Article 23 - Prohibition of traffic in human beings and forced 
+ labour. 
+Article 24 - Prohibition of employment of children below 14 years 
+ of age in factories, etc.
+4. Right to Freedom of Religion – Article 25 to 28
+Article 25 - Freedom of conscience and free profession, practice 
+ and propagation of religion.
+Article 26 - Freedom to manage religious affairs. 
+Article 27 - Freedom as to payment of taxes for promotion of any 
+ particular religion. 
+Article 28 - Freedom as to attendance at religious instruction or 
+ religious worship in certain educational institutions.
 
+5. Cultural and Educational Rights – Article 29 & 30
+Article 29 - Protection of interests of minorities.
+Article 30 - Right of minorities to establish and administer 
+ educational institutions.
+6. Right to Constitutional Remedies – Article 32
+• Writ Power of Supreme Court 
+• Dr B R Ambedkar called it as The Heart of the Constitution
+• Any person can go to supreme court in violation of Fundamental 
+Rights
+• Article 33 – Fundamental Rights of Defence Forces
+• Article 20 & 21 can’t be Suspended during emergency.
+• Fundamental Rights available only to Citizen of India: - Article 
+15, 16, 19, 29 & 30.
+Article 36-51: - DIRECTIVE PRINCIPLES OF STATE POLICY
+• Article 36 – Definition of DIRECTIVE PRINCIPLES OF STATE 
+POLICY
+• Article 37 - Application of the principles contained in this Part.
+
+• Article 38 - State to secure a social order for the promotion of 
+welfare of the people.
+• Article 39 - Certain principles of policy to be followed by the 
+State like Equal pay for equal work, adequate means of 
+livelihood, declaration of welfare state
+• Article 39A - Equal justice and free legal aid. 
+• Article 40 - Organisation of village panchayats. 
+• Article 41 - Right to work, to education and to public 
+assistance in certain cases.
+• Article 42 - Provision for just and humane conditions of work 
+and maternity relief. 
+• Article 43 - Living wage, etc., for workers. 
+• Article 43A - Participation of workers in management of 
+industries.
+• Article 43B - Promotion of co-operative societies.
+• Article 44 - Uniform civil code for the citizens.
+• Article 45 - Provision for early childhood care and education to 
+children below the age of six years. 
+• Article 46 - Promotion of educational and economic interests of 
+Scheduled Castes, Scheduled Tribes and other weaker sections. 
+• Article 47 - Duty of the State to raise the level of nutrition and 
+the standard of living and to improve public health. 
+Article 48 - Organisation of agriculture and animal husbandry
+& enables central govt and state govt to make efforts to ban on 
+cow slaughter
+• Article 48A - Protection and improvement of environment and 
+safeguarding of forests and wild life.
+• Article 49 - Protection of monuments and places and objects of 
+national importance. 
+• Article 50 - Separation of judiciary from executive.
+• Article 51 - Promotion of international peace and security.
+Article 51A: - Fundamental Duties
+It contains 11 duties which are followings:
+1. Abide by the Constitution and respect national flag & National 
+Anthem
+2. Follow ideals of the freedom struggle
+3. Protect sovereignty & integrity of India
+4. Defend the country and render national services when called 
+upon
+5. Sprit of common brotherhood
+6. Preserve composite culture
+7. Preserve natural environment
+8. Develop scientific temper
+THE PUNDITS
+21
+9. Safeguard public property
+10. Strive for excellence
+11. Duty of all parents/guardians to send their children in the 
+ age group of 6-14 years to school. It was added by the 86th 
+ Amendment in 2002.
+Article 52-151: - The Union
+• Article 52 - The President of India
+• Article 53 - Executive Power of the union
+• Article 54 - Election of President
+• Article 58 – Qualification of President
+• Article 60 – Oath of President 
+• Article 61 - Procedure for Impeachment of the President
+• Article 63 - The Vice-president of India
+• Article 64 - The Vice-President to be ex-officio chairman the 
+council of States
+• Article 66 - Election of Vice-president
+• Article 71 – In Dispute in election of President and Vice 
+President Last decision will be of Supreme Court.
+• Article 72 - Pardoning powers of President
+
+• Article 74 - Council of ministers to aid and advise President
+• Article 76 - Attorney-General for India
+• Article 79 - Constitution of Parliament
+• Article 80 - Composition of Rajya Sabha
+• Article 81 - Composition of Lok Sabha
+• Article 83 - Duration of Houses of Parliament
+• Article 83(1) – Rajya Sabha is a continuing Chamber. It can 
+never be dissolved.
+• Article 93 - The speakers and Deputy speakers of the house of 
+the people
+• Article 100 – Speaker casting vote in case of tie
+• Article 102 – Disqualification of MP’s
+• Article 105 - Powers, Privileges, etc. of the House of Parliament
+• Article 108 – Joint Sitting 
+• Article 109 - Special procedure in respects of money bills
+• Article 110 - Definition of “Money Bills”
+• Article 112 - Annual Financial Statement (Budget)
+• Article 114 - Appropriation Bills
+• Article 117 – Finance Bills
+
+• Article 123 - Powers of the President to promulgate Ordinances 
+during recess of parliament
+• Article 124 - Establishment of Supreme Court
+• Article 125 - Salaries of Judges
+• Article 126 - Appointment of acting Chief justice
+• Article 127 - Appointment of ad-hoc judges
+• Article 141 - Decision of the Supreme Court binding on all the 
+courts
+• Article 143 – President can send a matter to supreme court for 
+consultation
+• Article 148 - Comptroller and Auditor- General of India
+• Article 149 - Duties and Powers of CAG
+Article 152 to 237: - The State Governments
+• Article 153 - Governors of State
+• Article 154 - Executive Powers of Governor
+• Article 161 - Pardoning powers of the Governor
+• Article 165 - Advocate-General of the State
+• Article 167 - Duties of Chief Minister
+
+• Article 213 - Power of Governor to promulgate ordinances
+• Article 214 - High Courts for states
+• Article 215 - High Courts to be a court of record
+• Article 226 - Power of High Courts to issue certain writs
+• Article 233 - Appointment of District judges
+• Article 235 - Control over Subordinate Courts
+Article 239 to 242: - The Union Territories
+• Article 239AA – Special Provision for Delhi
+• Article 240 - Power of President to make regulations for certain 
+Union territories.
+• Article 241 - High Courts for Union territories.
+Article 243 & 243(O): - Panchayat
+• Article 243A - Gram Sabha
+• Article 243B - Constitution of Panchayats
+Article 245 -263: Relations between the Union & States
+• Article 262 - Adjudication of disputes relating to waters of 
+inter-State rivers or river valleys. 
+
+• Article 263 - Provisions with respect to an inter-State Council.
+Article 264 to 300-A - Finance, Property, Contracts & Suits
+• Article 266 - Consolidated Fund and Public Accounts Fund
+• Article 267 - Contingency Fund of India
+• Article 280 - Finance Commission
+• Article 300-A - Right to property
+Article 301 – 307: -Trade, Commerce and Intercourse 
+within the territories of India
+• Article 301 - Freedom to trade, commerce, and intercourse.
+• Article 302 - Power of Parliament to impose restrictions on 
+trade, commerce, and intercourse.
+Article 308 – 323: - Services Under Centre and State
+• Article 312 - All- India-Service.
+• Article 315 - Public service commissions for the union and for 
+the states
+• Article 320 - Functions of Public Service Commission.
+
+Article 323A - 323B: - Tribunals
+• Article 323A - Administrative Tribunals
+Article 324 – 329: - Elections
+• Article 324 - Superintendence, direction and control of 
+Elections to be vested in an Election Commission.
+• Article 325 - No person to be ineligible for inclusion in or to 
+claim to be included in a special, electoral roll on grounds of 
+religion, race, caste, or sex.
+• Article 326 - Elections to the house of the people and to the 
+legislative assemblies of states to be on the basis of adult 
+suffrage.
+Article 330 – 342: - Special Provisions to SC, ST, 
+ OBC, Minorities etc
+• Article 330 - Reservation of seats for Scheduled Castes and 
+Scheduled Tribes in the House of the People (Lok Sabha). 
+• Article 331 - Representation of the Anglo-Indian community in 
+the House of the People (Lok Sabha).
+
+• Article 332 - Reservation of seats for Scheduled Castes and 
+Scheduled Tribes in the Legislative Assemblies of the States. 
+• Article 333 - Representation of the Anglo-Indian community in 
+the Legislative Assemblies of the States.
+• Article 335 – Reservation to Scheduled Castes and Scheduled 
+Tribes in services and posts
+• Article 338 - National Commission for the SC
+• Article 338 - National Commission for Scheduled Tribes. 
+• Article 338B - National Commission for Backward Classes.
+• Article 340 - Appointment of a commission to investigate the 
+conditions of backward classes.
+Article 343 – 351: - Official Language
+• Article 343 - Official languages of the Union.
+• Article 345 - Official languages or languages of states.
+• Article 348 - Languages to be used in the Supreme Court and 
+in the High Courts.
+• Article 350(A) – Facilities for instruction in mother-tongue at 
+primary stage
+• Article 351 - Directive for development of the Hindi languages.
+
+Article 352 – 360: - Emergency
+• Article 352 - Proclamation of emergency (National Emergency).
+• Article 356 - State Emergency (President’s Rule)
+• Article 359 – Suspension of Fundamental Rights during 
+Emergency 
+• Article 360 - Financial Emergency
+Article 361 – 367: - Miscellaneous
+• Article 361- Protection of President and Governors
+Article 368: - Amendment of Constitution
+• Article 368 - Powers of Parliaments to amend the constitution
+Article 369 – 392: - Special, Transitional and 
+Temporary Provisions
+• Article 370 - Special provision of J&K.
+• Article 371 - Special provision with respect to the States of 
+Maharashtra and Gujarat. 
+• Article 371A - Special provision with respect to the State of 
+Nagaland.
+• Article 371B - Special provision with respect to the State of 
+Assam. 
+• Article 371C - Special provision with respect to the State of 
+Manipur.
+• Article 371D - Special provisions with respect to the State of 
+Andhra Pradesh or the State of Telangana 
+• Article 371E - Establishment of Central University in Andhra 
+Pradesh. 
+• Article 371F - Special provisions with respect to the State of 
+Sikkim. 
+• Article 371G - Special provision with respect to the State of 
+Mizoram.
+• Article 371H - Special provision with respect to the State of 
+Arunachal Pradesh.
+• Article 371I - Special provision with respect to the State of Goa. 
+• Article 371J - Special provisions with respect to the State of 
+Karnataka.
+
+Article 392 – 395: - Short Text, Commencement, 
+Authoritative Text in Hindi and Repeals
+• Article 393 - Short title - This Constitution may be called the 
+Constitution of India.
 
