@@ -2121,3 +2121,1230 @@ Authoritative Text in Hindi and Repeals
 • Article 393 - Short title - This Constitution may be called the 
 Constitution of India.
 
+
+
+
+
+Who was Tukaram?
+Who was Ramdas, and what did he compile?
+What is the Sufi movement?
+How did Sufis view religious practices?
+What are the main features of Sufism?
+Who was Khwaja Ali Hujjwiri, and what did he write?
+Who founded the Suhara-wardi order, and where?
+Who founded the Chisti order and settled in Ajmer?
+Name some other Chisti Sufi saints and their contributions.
+Who founded the Firdausi order, and where was it restricted to?
+Who founded the Qadiriya order, and where did it spread?
+Who founded the Shuttari order, and where did it mainly spread?
+Who was Miyan Mir, and which Sufi order did he belong to?
+Who founded the Naqsbandiah order, and who was its famous saint?
+What were the achievements of the Bhakti and Sufi movements?
+Who laid the foundation of Mughal rule in India?
+What is Babur's lineage, and who were his ancestors?
+Describe Babur's major victories.
+Where did Babur die, and what innovations did he introduce?
+What are the names of Babur's significant literary works?
+
+
+Tukaram
+Maharashtra
+Abhangas
+Ramdas
+Dasabodha
+Sufism
+Shariat
+Hinduism
+Christianity
+Buddhism
+Zoroastrianism
+Khanqah
+Khwaja Ali Hujjwiri
+Data Ganj Baksh
+Kashf-ul-Mahjub
+Shaikh Bahauddin Zakariya
+Suhara-wardi order
+Multan
+Khwaja Muinuddin Chisti
+Chisti order
+Ajmer
+Sheikh Hamiduddin Nagauri
+Khwaja Qutubuddin Bakhtiyar Kaki
+Qutub Minar
+Baba Fariduddin Ganj-i-Shakar
+Punjab
+Shaikh Nizamuddin Auliya
+Mehboob-i-Ilahi
+Khanqah
+Delhi
+Chirag-i-Delhi
+Syed Muhammad Gesu Daraz
+Gulbarga
+Bandanawaz
+Urdu
+Shaikh Badruddin Samarkandi
+Firdausi order
+Bihar
+Shah Nayamatullah Qadiri
+Shah Abdullah Shuttari
+Madhya Pradesh
+Gujarat
+Miyan Mir
+Qadiriya order
+Khwaja Baqi Billah
+Naqsbandiah order
+Shaikh Ahmad Sirhindi
+Mujaddid Alif
+Bhakti
+Akbar
+Mughal Period
+Babur
+Timur
+Chengiz Khan
+Panipat
+Ibrahim Lodhi
+Rana Sanga
+Mewar
+Khanwa
+Medini Rai
+Chaneri
+Muhammad Lodhi
+Ghaghra
+Agra
+Kabul
+Tughluma
+Turki
+Tuzuk-i-Baburi
+Baburnama
+Abdur Rahim Khanekhana
+Madam Bebridge
+Diwan
+Mubaiyan
+Risal-i-Usaz
+
+
+Question
+Answer
+Q1: Who was Tukaram?
+A1: Tukaram was the greatest Bhakti poet from Maharashtra who wrote devotional poems known as Abhangas.
+Q2: Who was Ramdas, and what did he compile?
+A2: Ramdas was the last great saint poet from Maharashtra, and he compiled 'Dasabodha,' a compilation of his writings and sermons.
+Q3: What is the Sufi movement?
+A3: The Sufi movement is the mystical movement in Islam that emphasises the direct perception of God through love, prayers, and rituals.
+Q4: How did Sufis view religious practices?
+A4: Sufis viewed religious practices as a means to achieve union with God, emphasising love of God, prayers, fasts, and rituals, regardless of Hindu or Muslim references.
+Q5: What are the main features of Sufism?
+A5: Main features of Sufism include: 1. Organized in different Silsilas (orders) 2. Absorbed ideas from various religions 3. Aimed at spiritual self-development and service to mankind 4. Promoted Hindu-Muslim unity and cultural synthesis 5. Preached faith and devotion to God 6. Discouraged materialism but not complete renunciation.
+Q6: Who was Khwaja Ali Hujjwiri, and what did he write?
+A6: Khwaja Ali Hujjwiri, also known as Data Ganj Baksh, was an early Sufi saint in India who authored 'Kashf-ul-Mahjub,' a celebrated manual of Sufism.
+Q7: Who founded the Suhara-wardi order, and where?
+A7: Shaikh Bahauddin Zakariya founded the Suhara-wardi order and established the first leading Khanqah in India at Multan.
+Q8: Who founded the Chisti order and settled in Ajmer?
+A8: Khwaja Muinuddin Chisti founded the Chisti order and settled in Ajmer around 1206.
+Q9: Name some other Chisti Sufi saints and their contributions.
+A9: Other Chisti Sufi saints include Sheikh Hamiduddin Nagauri, Khwaja Qutubuddin Bakhtiyar Kaki, Baba Fariduddin Ganj-i-Shakar, Shaikh Nizamuddin Auliya, Shaikh Nasiruddin Mahmud, and Syed Muhammad Gesu Daraz, who made significant contributions to Sufism.
+Q10: Who founded the Firdausi order, and where was it restricted to?
+A10: Shaikh Badruddin Samarkandi founded the Firdausi order, which was restricted to Bihar.
+Q11: Who founded the Qadiriya order, and where did it spread?
+A11: Shah Nayamatullah Qadiri founded the Qadiriya order, which spread in Uttar Pradesh and Deccan.
+Q12: Who founded the Shuttari order, and where did it mainly spread?
+A12: Shah Abdullah Shuttari founded the Shuttari order, which mainly spread in Madhya Pradesh and Gujarat.
+Q13: Who was Miyan Mir, and which Sufi order did he belong to?
+A13: Miyan Mir was a popular Sufi saint of the Qadiriya order.
+Q14: Who founded the Naqsbandiah order, and who was its famous saint?
+A14: Khwaja Baqi Billah founded the Naqsbandiah order, and its most famous saint was Shaikh Ahmad Sirhindi, known as Mujaddid Alif.
+Q15: What were the achievements of the Bhakti and Sufi movements?
+A15: Achievements of Bhakti and Sufi movements include: 1. Mutual influence and reform in Hinduism and Islam 2. Liberalisation of Islam and reformation of Hinduism 3. Resistance to orthodoxy 4. Promotion of social reform measures 5. Creation of an atmosphere of inter-religious fraternity 6. Development of regional languages 7. Cultural synthesis leading to national governance under Akbar.
+Q16: Who laid the foundation of Mughal rule in India?
+A16: Babur laid the foundation of the Mughal rule in India in 1526.
+Q17: What is Babur's lineage, and who were his ancestors?
+A17: Babur was descended from Timur (from his father's side) and Chengiz Khan (from his mother's side).
+Q18: Describe Babur's major victories.
+A18: Babur defeated Ibrahim Lodhi at the first battle of Panipat in 1526, Rana Sanga of Mewar at Khanwa in 1527, Medini Rai of Chaneri at Chanderi in 1528, and Muhammad Lodhi at Ghaghra in 1529.
+Q19: Where did Babur die, and what innovations did he introduce?
+A19: Babur died in Agra in 1530. He introduced the Tughluma and flanking party system and was the first to use gunpowder and artillery in India.
+Q20: What are the names of Babur's significant literary works?
+A20: Babur's significant literary works include Tuzuk-i-Baburi (his autobiography), Diwan (in Turki), Mubaiyan (in Persian), and Risal-i-Usaz (letters of Babur).
+
+
+Who was Humayun's father?
+When did Humayun ascend to the throne?
+Who challenged Humayun's succession to the throne?
+What were the outcomes of Humayun's battles against Sher Shah?
+Where did Humayun spend 12 years of his life in exile?
+When did Humayun return to India and regain control?
+How did Humayun die?
+Who wrote Humayun's biography?
+What was Humayun's second capital?
+What was the timeframe of the Sur Empire (Second Afghan Empire)?
+Who was Sher Shah's father?
+How did Sher Shah come to power initially?
+What title did Sher Shah assume after defeating Humayun?
+In which battles did Sher Shah defeat Humayun?
+What territories did Sher Shah conquer during his reign?
+What coin did Sher Shah issue?
+What major road did Sher Shah build?
+How did Sher Shah handle local crimes?
+How was land tax determined during Sher Shah's reign?
+Where was Sher Shah buried?
+Who succeeded Sher Shah as emperor?
+Who was Akbar's father?
+At what age did Akbar ascend to the throne?
+Who served as Akbar's regent initially?
+What battle ended the Mughal-Afghan contest for Delhi's throne in favour of the Mughals?
+Who was defeated in the Second Battle of Panipat?
+When did Akbar assume direct control of the kingdom?
+Who influenced Akbar's rule from 1560 to 1562?
+What was Akbar's policy towards the Rajput kings?
+Who led the Mughal army in the Battle of Haldighati?
+What was the outcome of the Battle of Haldighati?
+What was Akbar's attempt to promote religious tolerance?
+What was the basis of Din-i-Ilahi?
+What notable buildings did Akbar construct?
+Who were the Navaratna (nine jewels) of Akbar's court?
+Which Sufi saint played a role in the construction of Fatehpur Sikri?
+Why did Akbar shift his court to Fatehpur Sikri?
+Who is considered the real founder of the Mughal empire in India?
+How did Birbal and Abul Fazl meet their ends?
+What was the official language of Mughal India under Akbar?
+
+Humayun
+Babur
+Kamran
+Hindal
+Aska
+Afghans
+Sher Shah
+Chausa
+Kannauj/Bilgram
+Iran
+Gulbadan Begum
+Humayunama
+Din Panah
+Sur Empire
+Second Afghan Empire
+Hasan Khan
+Sasaram
+Ibrahim Lodhi
+South Bihar
+Jalal Khan Lohani
+Bahar Khan Lohani
+Hazarat-i-Ala
+Chunar
+Lad Malika
+Chunar Fort
+Malwa
+Ranthambore
+Raisin
+Rajputana
+Marwar
+Chittor
+Kalinjar
+Rupia
+Grand Trunk Road (G.T. Road)
+Purana Quila
+Delhi
+Islam Shah
+Muhammad Adil Shah
+Akbar
+Jalaluddin Muhammad Akbar Badshah Ghazi
+Kalanaur
+Punjab
+Bairam Khan
+Second Battle of Panipat
+Hemu
+Maham Anga
+Adham Khan
+Rajputa
+Mewar
+Rana Uday Singh
+Rana Pratap
+Harakha Bai
+Bharmal/Biharimal
+Jaipur
+Amar Singh
+Sisodiya
+Chittor
+Battle of Haldighati
+Man Singh
+Din-i-Ilahi
+Birbal
+Fatehpur Sikri
+Agra Fort
+Lahore Fort
+Allahabad Fort
+Humayun's Tomb
+Sheikh Salim Chisti
+Salim/Sheikho Baba (Jahangir)
+Navaratna
+Abul Fazl
+Faizi
+Todarmal
+Bhagwandas
+Tansen
+Abdur Rahim Khanekhana
+Mulla Do Pyaja
+Tulsidas
+Ramcharitamanas
+Sikandara
+Persian
+
+
+Question
+Answer
+Who was Humayun's father?
+Babur
+When did Humayun ascend to the throne?
+1530
+Who challenged Humayun's succession to the throne?
+His brothers Kamran, Hindal, and Askari along with the Afghans
+What were the outcomes of Humayun's battles against Sher Shah?
+He was defeated at Chausa (1539) and Kannauj/Bilgram (1540).
+Where did Humayun spend 12 years of his life in exile?
+Iran
+When did Humayun return to India and regain control?
+In 1555, after Sher Shah's death.
+How did Humayun die?
+He fell while climbing down the stairs of his library (at Din Panah) in 1556 and was buried in Delhi.
+Who wrote Humayun's biography?
+His sister, Gulbadan Begum
+What was Humayun's second capital?
+Din Panah at Delhi
+What was the timeframe of the Sur Empire (Second Afghan Empire)?
+1540-1555
+Who was Sher Shah's father?
+Hasan Khan, the Jagirdar of Sasaram
+How did Sher Shah come to power initially?
+Ibrahim Lodhi transferred his father's jagir to him.
+What title did Sher Shah assume after defeating Humayun?
+Hazrat-i-Ala
+In which battles did Sher Shah defeat Humayun?
+Chausa (1539) and Kannauj/Bilgram (1540)
+What territories did Sher Shah conquer during his reign?
+Malwa, Ranthambore, Raisin, Marwar, Chittor, and Kalinjar.
+What coin did Sher Shah issue?
+Rupia
+What major road did Sher Shah build?
+The Grand Trunk Road (G.T. Road) from Calcutta to Peshawar
+How did Sher Shah handle local crimes?
+He introduced the principle of local responsibility, and Muqaddams were punished for failure to find culprits.
+How was land tax determined during Sher Shah's reign?
+Land was measured, and 1/3rd of the average was fixed as land tax.
+Where was Sher Shah buried?
+Sasaram
+Who succeeded Sher Shah as emperor?
+Islam Shah (1545-54), followed by Muhammad Adil Shah (1554-55)
+Who was Akbar's father?
+Humayun
+At what age did Akbar ascend to the throne?
+14
+Who served as Akbar's regent initially?
+Bairam Khan
+What battle ended the Mughal-Afghan contest for Delhi's throne in favour of the Mughals?
+Second Battle of Panipat (5 Nov., 1556)
+Who was defeated in the Second Battle of Panipat?
+Hemu (the Hindu General of Muhammad Adil Shah)
+When did Akbar assume direct control of the kingdom?
+In 1560, at the age of 18.
+Who influenced Akbar's rule from 1560 to 1562?
+Maham Anga and Adham Khan junta (Petticoat Govt.)
+What was Akbar's policy towards the Rajput kings?
+He tried to win them over and inducted many into Mughal service.
+Who led the Mughal army in the Battle of Haldighati?
+Man Singh of Amer
+What was the outcome of the Battle of Haldighati?
+Rana Pratap was defeated but continued to resist Mughal rule.
+What was Akbar's attempt to promote religious tolerance?
+He proclaimed a new religion, Din-i-Ilahi, in 1581.
+What was the basis of Din-i-Ilahi?
+It was a synthesis of values from various religions, including Hinduism, Islam, Jainism, and Christianity.
+What notable buildings did Akbar construct?
+Fatehpur Sikri, Agra Fort, Lahore Fort, Allahabad Fort, and Humayun's Tomb.
+Who were the Navaratna (nine jewels) of Akbar's court?
+Birbal, Abul Fazl, Faizi, Todarmal, Bhagwandas, Man Singh, Tansen, Abdur Rahim Khanekhana, Mulla Do Pyaja.
+Which Sufi saint played a role in the construction of Fatehpur Sikri?
+Sheikh Salim Chisti.
+Why did Akbar shift his court to Fatehpur Sikri?
+It was in honour of Sheikh Salim Chisti, who blessed him with a son.
+Who is considered the real founder of the Mughal empire in India?
+Akbar
+How did Birbal and Abul Fazl meet their ends?
+Birbal was killed in a battle with the Yusufzai Tribe (1586), and Abul Fazl was murdered by Bir Singh Bundela (1601).
+What was the official language of Mughal India under Akbar?
+Persian
+
+
+Who succeeded Akbar after his death in 1605?
+How many ordinances did Salim issue, and what is he known for?
+What was established at Agra Fort for seekers of royal justice?
+Who did Jahangir marry in 1611, and what title was she given later?
+What influence did Nurjahan have over state affairs?
+Name the other women Jahangir married.
+In 1608, which representative of the East India Company came to Jahangir's court?
+Who was given the mansab of 400 in Jahangir's court?
+In 1615, which ambassador of King James I of England came to Jahangir's court?
+Which fort did Jahangir capture in 1620?
+Whose submission marked a political triumph during Jahangir's reign?
+What was the fate of Jahangir's son Khusrau after revolting in 1605?
+What did Jahangir write during his reign?
+Where was Jahangir buried?
+Who ascended the throne in 1628 after Jahangir's death?
+What were the revolts Shahjahan faced early in his reign?
+In which year did Mumtaj Mahal die, and what did Shahjahan build to perpetuate her memory?
+Whom did Shahjahan defeat in 1631-32?
+Which dynasties were brought under Mughal control during Shahjahan's reign?
+Where did Shahjahan send his army to secure the defense of North-Western India?
+What structures are associated with the promotion of art, culture, and architecture in Shahjahan's reign?
+How did Shahjahan's reign end, and where was he buried?
+Whom did Aurangzeb defeat at Dharmat, Samugarh, and Deorai?
+What title did Aurangzeb take after his victory?
+During the first 23 years of his rule, where did Aurangzeb concentrate his efforts?
+Whom did Aurangzeb capture in 1675 and why was he executed?
+Who organized the Sikh community into warriors to fight against Mughals?
+When and where did Guru Gobind Singh get assassinated?
+What was Banda Bairagi's role after Guru Gobind Singh's death?
+When did Aurangzeb leave the North, and what did he focus on for the next 25 years?
+Who was Shivaji, and what happened in 1665 regarding him?
+How did Shahjahan's reign end, and where was he buried?
+Where was Aurangzeb buried, and what was he called?
+
+Jahangir's Reign (1605-27):
+Salim
+Akbar
+Zanjir-i-Adal
+Agra Fort
+Mihar-un-nisa
+Sher Afghan
+Bengal
+Nurjahan
+Padshah Begum
+Manmati
+Jagat Gosai
+JodhaBai
+Marwar
+Kachhwaha
+Captain William Hawkins
+East India Company
+Surat
+Rana Amar Singh
+Mewar
+Kangara
+Ahmadnagar
+Balaghat
+Maharashtra
+Khusrau
+Sikh Guru Arjun Dev
+Arjun Dev
+Khurram
+Shanjahan
+Mahavat Khan
+Tuzuk-i-Jahangiri
+Lahore
+Shahjahan's Reign (1628-58):
+Shahjahan
+Jagat Gosai
+Jodha Bai
+Raja Jagat Singh
+Deccan
+Bundelkhand
+Jujhar Singh Bundela
+Orchha
+Khan-i-Jahan Lodhi
+Mumtaj Mahal
+Arzumand Bano
+Taj Mahal
+Portuguese
+Nizam Shahi
+Ahmednagar
+Bijapur
+Golconda
+Balkh
+Afghanistan
+Iranians
+French
+Bernier
+Tavernier
+Italian
+Nicoli Manucci
+Peter Mundi
+Red Fort
+Jama Masjid
+Taj Mahal
+Aurangzeb's Reign (1658-1707):
+Aurangzeb
+Dara
+Dharmat
+Samugarh
+Deorai
+Alamgir
+Delhi
+Marathas
+Shivaji
+Guru Teg Bahadur
+Sikhs
+Guru Gobind Singh
+Khalsa
+Islam
+Nander
+Deccan
+Banda Bairagi
+North
+Jai Singh
+Amber
+Sambhaji
+Rajaram
+Tarabai
+Bijapur
+Golconda
+Khuldabed
+Daulatabad
+Zinda Pir
+
+
+Question
+Answer
+Jahangir's Reign (1605-27)
+
+
+Who succeeded Akbar after his death in 1605?
+Salim, son of Akbar
+How many ordinances did Salim issue, and what is he known for?
+Issued 12 ordinances, known for strict administration of justice
+What was established at Agra Fort for seekers of royal justice?
+Zanjir-i-Adal (Chain of Justice)
+Who did Jahangir marry in 1611, and what title was she given later?
+Married Mihar-un-nisa, later titled Nurjahan
+What influence did Nurjahan have over state affairs?
+Exercised tremendous influence, made official Padshah Begum
+Name the other women Jahangir married.
+Manmati/Jagat Gosai/JodhaBai of Marwar and a Kachhwaha princess
+In 1608, which representative of the East India Company came to Jahangir's court?
+Captain William Hawkins
+Who was given the mansab of 400 in Jahangir's court?
+Captain William Hawkins
+In 1615, which ambassador of King James I of England came to Jahangir's court?
+Sir Thomas Roe
+Which fort did Jahangir capture in 1620?
+Kangara
+Whose submission marked a political triumph during Jahangir's reign?
+Rana Amar Singh of Mewar (1615)
+What was the fate of Jahangir's son Khusrau after revolting in 1605?
+Sentenced to death
+What did Jahangir write during his reign?
+Tuzuk-i-Jahangiri in Persian
+Where was Jahangir buried?
+Lahore
+Shahjahan's Reign (1628-58)
+
+
+Who ascended the throne in 1628 after Jahangir's death?
+Shahjahan
+What were the revolts Shahjahan faced early in his reign?
+Bundelkhand and Deccan revolts
+In which year did Mumtaj Mahal die, and what did Shahjahan build to perpetuate her memory?
+Died in 1631, built Taj Mahal in 1632-53
+Whom did Shahjahan defeat in 1631-32?
+Portuguese
+Which dynasties were brought under Mughal control during Shahjahan's reign?
+Nizam Shahi's dynasty of Ahmednagar, Bijapur, and Golconda
+Where did Shahjahan send his army to secure the defense of North-Western India?
+Balkh
+What structures are associated with the promotion of art, culture, and architecture in Shahjahan's reign?
+Red Fort, Jama Masjid, and Taj Mahal
+How did Shahjahan's reign end, and where was he buried?
+War of succession among his sons in 1657, imprisoned by Aurangzeb, buried at Taj (Agra)
+Aurangzeb's Reign (1658-1707)
+
+
+Whom did Aurangzeb defeat at Dharmat, Samugarh, and Deorai?
+Dara at Dharmat (1658), Samugarh (1658), and Deorai
+What title did Aurangzeb take after his victory?
+Alamgir
+During the first 23 years of his rule, where did Aurangzeb concentrate his efforts?
+North India
+Whom did Aurangzeb capture in 1675 and why was he executed?
+Guru Teg Bahadur, executed for refusing to embrace Islam
+Who organized the Sikh community into warriors to fight against Mughals?
+Guru Gobind Singh
+When and where did Guru Gobind Singh get assassinated?
+1708, Nander in Deccan
+What was Banda Bairagi's role after Guru Gobind Singh's death?
+Continued the war against Mughals
+When did Aurangzeb leave the North, and what did he focus on for the next 25 years?
+Left in 1682, focused on crushing the Marathas
+Who was Shivaji, and what happened in 1665 regarding him?
+Powerful Maratha king, conspired to eliminate him with Jai Singh of Amber
+How did Shahjahan's reign end, and where was he buried?
+Imprisoned by Aurangzeb, died in captivity in 1666, buried at Taj (Agra)
+Where was Aurangzeb buried, and what was he called?
+Buried at Khuldabed (Daulatabad), called Zinda Pir (living saint)
+
+
+
+What religious policies did Aurangzeb implement in 1659?
+In 1663, what custom did Aurangzeb ban?
+What Hindu-related restriction did Aurangzeb impose in 1668?
+What actions did Aurangzeb take in 1669 regarding court activities?
+In 1670, what practice did Aurangzeb ban related to the emperor himself?
+What did Aurangzeb reintroduce in 1679?
+During Aurangzeb's rule, what happened to the Hindu Mansabdars in relation to Jaziya?
+Name the important causes of the decline of the Mughal Empire after Aurangzeb.
+Who were the later Mughal emperors after Aurangzeb?
+What was Bahadur Shah I's original name and title?
+Who helped Jahandar Shah ascend the throne, and what did he abolish during his rule?
+Who assisted Farrukh Siyar in ascending the throne, and who were the key figures?
+What significant event occurred during Muhammad Shah's rule in 1738-39?
+What happened during Ahmed Shah's rule in 1748-1754 regarding the Mughal territories?
+Who occupied Delhi during Alamgir II's rule, and what followed?
+Why couldn't Shah Alam II enter Delhi for 12 years during his reign?
+What was Akbar II's status during his reign?
+What happened to Bahadur Shah II during the 1857 revolt?
+How was the Mughal empire administratively structured?
+What was the Mansabdari system introduced by Akbar?
+What were the three categories of Mansabdars in the Mughal system?
+How were Mansabdars paid, and what were the two types?
+What did Jahangir add to the Mansabdari system?
+What system was added by Shahjahan, and what crisis did it cause?
+What were the methods of revenue collection in the Mughal empire?
+What was Dahsala Bandobast or Zabti?
+What was the Jagirdari system in the Mughal administration?
+What were Madad-i-maash, Suyur ghal, or Inam in the Mughal administration?
+Name two mosques built by Babur and their locations.
+Who built Humayun's tomb, and by whom was it built?
+What is the unusual building at Fatehpur Sikri, and what is its plan reminiscent of?
+What are the Indian-style buildings in Fatehpur Sikri built by Akbar?
+What is the significance of Buland Darwaja, and when was it built?
+What is notable about Salim Chisti's tomb, and what technique was first used in Itimad-ud-daula?
+What did Jahangir introduce regarding the use of marble in architecture?
+What notable structures did Jahangir build in Lahore?
+What reached its climax in Taj Mahal during Shahjahan's reign?
+Name important buildings built by Shahjahan in Agra.
+What did Aurangzeb build in the Red Fort, and what is the only monument associated with him?
+What mosque did Aurangzeb build in Lahore?
+Name two master painters in Humayun's service.
+Who were the famous painters of Akbar's court?
+Name three famous painters of Jahangir's court.
+What technique did Nurjahan introduce in Itimad-ud-daula?
+What did Shahjahan lay the foundations of in 1637, and what structures did he build there?
+Aurangzeb
+Kalama
+Navroz Festival
+Muhtasib
+Sati
+Jharokha darshan
+Jizya
+Rajputa
+Deccan
+Mughal Empire
+Jagirdari crisis
+Maratha
+Bengal
+Hyderabad
+Avadh
+Mysore
+Nadir Shah
+Abdali
+British
+Later Mughals
+Bahadur Shah I
+Muazzam
+Shah Alam I
+Jahandar Shah
+Zulfikar Khan
+Farrukh Siyar
+Sayyid brothers
+Muhammad Shah
+Nadir Shah
+Thakht-i-Taus
+Kohinoor diamond
+Ahmed Shah
+Ahmad shah Abdali
+Punjab
+Multan
+Alamgir II
+Shah Alam II
+Nazib Khan
+Akbar II
+East India Company
+Bahadur Shah II
+Rangoon
+Burma
+Administration
+Mughal empire
+Subas
+Sarkar
+Pargana
+Gram
+Khalisa
+Mansabdari system
+Mansab
+Zat
+Sawar
+Naqdi
+Jagirdar
+Jahangir
+Duaspah Sih-aspah system
+Shahjahan
+Jama-Dami
+Mahana Zagir
+Jagirdari system
+Kankut
+Rai
+Zabti
+Dahsala Bandobast
+Todar Mal
+Madad-i-maash
+Suyur ghal
+Inam
+Mughal Culture
+Babur
+Kabulibagh
+Panipat
+Sambhal
+Rohilkhand
+Humayun
+Haji Begum
+Fatehpur Sikri
+Panch Mahal
+Mariam's palace
+Diwan-i-Aam
+Diwan-i-khas
+Buland Darwaja
+Salim Chisti's tomb
+Taj Mahal
+Shahjahanabad
+Red Fort
+Takht-i-Taus
+Pietra dura
+Jahangir
+Moti Masjid
+Lahore
+Shahdara
+Nurjahan
+Itimad-ud-daulah
+Mirza Ghiyas Beg
+Marble
+Jama Masjid
+Shah Jahan
+Agra
+Moti Masjid
+Khaas Mahal
+Musamman Burz
+Aurangzeb
+Badshahi Masjid
+Bibi ka Makbara
+Rabbia-ud-daura
+Aurangabad
+Humayun
+Mir Syed Ali
+Abdus Samad
+Daswant
+Basawan
+Abdul Hassan
+Ustad Mansur
+Bishandas
+
+Who was Shivaji?
+What did Shivaji inherit from his father in 1637?
+What forts did Shivaji conquer?
+Who was Afzal Khan, and what happened to him?
+Who was Shaista Khan, and what role did he play?
+What happened in the Treaty of Purandhar (1665)?
+When was Shivaji coronated, and what title did he assume?
+What territories did Shivaji conquer during 1677-80?
+How did Shivaji organize his administration?
+Who were the ashtapradhan, and how did they function?
+What reforms of Shivaji were based on Malik Ambar's?
+What was the unit of measurement for land revenue under Shivaji's rule?
+How was land revenue assessed initially and after reforms?
+What was Chauth, and how much was it?
+What was Sardeshmukhi, and when was it levied?
+Who succeeded Shivaji, and what happened during his rule?
+Who succeeded Sambhaji, and what were his notable actions?
+Who succeeded Rajaram, and who acted as a guardian?
+Who released Shahu, and what happened in the Battle of Khed?
+What transformation occurred during Shahu's reign?
+Who was Balaji Viswanath, and when did he become the First Peshwa?
+What role did Balaji Viswanath play in Shahu's victory?
+What agreement did Balaji Viswanath conclude in 1719?
+
+Maratha State
+Maratha Confederacy
+Shivaji
+Shivneri Fort
+Shahji Bhonsle
+Jija Bai
+Samarth Ramdas
+Poona
+Dadaji Kondadev
+Singh Garh/Kondana
+Rohind
+Chakan
+Toran
+Purandhar
+Rajgarh/Raigarh
+Supa
+Panhala
+Afzal Khan
+Adil Shah
+Shaista Khan
+Aurangzeb
+Surat
+Ahmednagar
+Raja Jai Singh
+Amber
+Purandhar (1665) Treaty
+Agra
+Raigarh
+Haindava Dharmodharak
+Chhatrapati Shivaji
+Mughals
+Siddis (Janjira)
+Karnataka
+Ashtapradhan
+Malik Ambar
+Assessment
+Kathi
+Land revenue
+Chauth
+Sardeshmukhi
+Sambhaji
+Rajaram
+Tarabai
+Shahu
+Bahadur Shah
+Battle of Khed
+Kolhapur
+Peshwas
+Balaji Viswanath
+Sena Karte
+Syed Brothers-King Maker
+Mughal emperor Farrukh Siyar
+
+
+Question
+Answer
+1. Who was Shivaji?
+- Born at Shivneri Fort in 1627. - Father: Shahji Bhonsle, Mother: Jija Bai, Religious Teacher: Samarth Ramdas.
+2. What did Shivaji inherit from his father in 1637?
+- Inherited the Jagir of Poona.
+3. What forts did Shivaji conquer?
+- Singh Garh/Kondana (1643) - Rohind and Chakan (1644-45) - Toran (1646) - Purandhar (1648) - Rajgarh/Raigarh (1656) - Supa (1656) - Panhala (1659)
+4. Who was Afzal Khan, and what happened to him?
+- Deputed by Adil Shah to punish Shivaji. - Killed by Shivaji in 1659.
+5. Who was Shaista Khan, and what role did he play?
+- Governor of Deccan deputed by Aurangzeb. - Shivaji lost Poona and suffered defeats, but later attacked and plundered Surat and Ahmednagar.
+6. What happened in the Treaty of Purandhar (1665)?
+- Shivaji ceded some forts to the Mughals. - Visited the Mughal court at Agra.
+7. When was Shivaji coronated, and what title did he assume?
+- Coronated in 1674 at Raigarh. - Assumed the title of Haindava Dharmodharak (Protector of Hinduism).
+8. What territories did Shivaji conquer during 1677-80?
+- Conquered Karnataka.
+9. How did Shivaji organize his administration?
+- Divided his territory into three provinces. - Provinces were subdivided into prants and further into parganas or tarafs. - Village was the lowest unit headed by Patel.
+10. Who were the ashtapradhan, and how did they function?
+- Eight ministers directly responsible to Shivaji. - No collective responsibility.
+11. What reforms of Shivaji were based on Malik Ambar's?
+- Administrative reforms, particularly related to land revenue. - Assessment of land revenue based on measurement.
+12. What was the unit of measurement for land revenue under Shivaji's rule?
+- Kathi of Malik Ambar.
+13. How was land revenue assessed initially and after reforms?
+- Initially fixed at 1/3rd (33%) of the gross produce. - After reforms, fixed at 2/5th (40%) of the gross produce.
+14. What was Chauth, and how much was it?
+- 1/4th (25%) of the land revenue paid to the Marathas to avoid Maratha raids.
+15. What was Sardeshmukhi, and when was it levied?
+- Additional levy of 10% on lands claimed by Marathas but part of the Mughal Empire.
+16. Who succeeded Shivaji, and what happened during his rule?
+- Sambhaji (1680-89). - Defeated Rajaram in the war of succession. - Provided support to Akbar II. - Captured and executed by Mughals.
+17. Who succeeded Sambhaji, and what were his notable actions?
+- Rajaram (1689-1700). - Fled to Jinji due to Mughal invasion. - Created the post of Pratinidhi.
+18. Who succeeded Rajaram, and who acted as a guardian?
+- Tarabai (1700-07). - Minor son Shivaji II succeeded Rajaram. - Tarabai continued the struggle with Mughals.
+19. Who released Shahu, and what happened in the Battle of Khed?
+- Released by Mughal emperor Bahadur Shah. - Shahu defeated Tarabai's army in the Battle of Khed (1700).
+20. What transformation occurred during Shahu's reign?
+- Rise of Peshwas. - Transformation of Maratha kingdom into an empire based on confederacy.
+21. Who was Balaji Viswanath, and when did he become the First Peshwa?
+- Started as a revenue official. - Became Peshwa in 1713. - Titled Sena Karte by Shahu in 1708.
+22. What role did Balaji Viswanath play in Shahu's victory?
+- Played a crucial role in Shahu's final victory. - Won over Maratha Sardars to Shahu's side.
+23. What agreement did Balaji Viswanath conclude in 1719?
+- Agreement with Syed Brothers-King Maker. - Mughal emperor Farrukh Siyar recognized Shahu as the king of the Swarajya
+
+
+Who succeeded Balaji Viswanath as Peshwa in 1720?
+At what age did Baji Rao I become Peshwa?
+What tactics was Baji Rao I known for?
+What did Baji Rao I say about the Mughals?
+What territories did Baji Rao I conquer from the Portuguese?
+Which territories did Baji Rao I get from the Nizam-ul-Mulk through the treaty of Doraha Sarai?
+Who succeeded Baji Rao I as Peshwa in 1740?
+After the death of Shahu in 1749, who managed all state affairs?
+What agreement did Balaji Baji Rao have with the Mughal emperor Ahmad Shah?
+What event marked the end of Maratha power in 1761?
+Who succeeded Balaji Baji Rao after his death?
+What was the cause of the First Anglo-Maratha War (1775-82)?
+What was the outcome of the Convention of Wadgaon (1779)?
+Which treaty renounced the cause of Raghunath Rao?
+What treaty did the Maratha Peshwa sign in 1802?
+What marked the beginning of the Third Anglo-Maratha War (1817-18)?
+Who was determined to proclaim British paramountcy in India during the Third Anglo-Maratha War?
+What was the result of the Third Anglo-Maratha War?
+In what year did the Danish company sell all their settlements in India to the British?
+Who discovered the Cape route from Europe to India?
+Which three trading stations were established by the Portuguese in India?
+Who introduced the policy of 'Blue water'?
+Who captured Goa from the ruler of Bijapur in 1510?
+In 1661, who gave Bombay to Charles II of England as dowry?
+Which territories did the Marathas capture from the Portuguese in 1739?
+What territories were retained by the Portuguese in India till 1961?
+When was the Dutch East India Company formed?
+Name the Dutch factories set up in India.
+After which battle did the Dutch concede to the English in 1759?
+
+Maratha Confederacy
+Baji Rao I
+Balaji Viswanath
+Shivaji
+Maratha Kingdom
+Siddis of Janjira
+Bassein
+Salsette
+Portuguese
+Nizam-ul-Mulk
+Doraha Sarai
+North India
+Mughal empire
+Balaji Baji Rao
+Nana Saheb
+Shahu
+Mughal emperor Ahmad Shah
+Third Battle of Panipat
+Viswas Rao
+Sadashiv Rao Bhau
+Madhav Rao
+Narayan Rao
+Sawai Madhav Rao
+Baji Rao II
+Anglo-Maratha Wars
+Raghunath Rao
+English (Hastings)
+Convention of Wadgaon
+Treaty of Salbai
+Subsidiary Alliance Treaty of Bassein
+Third Anglo-Maratha War
+Lord Hastings
+Pindaris
+Danish company
+British
+Portuguese
+Vasco da Gama
+Calicut
+Zamorin
+Cochin
+Francisco de Almeida
+Blue water
+Alfonso d' Albuquerque
+Goa
+Nino da Cunha
+Diu
+Bassein
+Bahadur Shah of Gujarat
+Martin Alfonso de Souza
+Jesuit Saint Fransisco Xavier
+Hugli
+Qasim Khan
+Shahjahan
+King of Portugal
+Bombay
+Charles II of England
+Dutch
+Dutch East India Company
+Dutch parliyament
+Masulipatnam
+Pulicat
+Surat
+Bimilipatam
+Karaikal
+Chinsura
+Kasimbazar
+Baranagore
+Patna
+Balasore
+Negapatam
+Cochin
+Battle of Bedera
+
+
+Question
+Answer
+Who succeeded Balaji Viswanath as Peshwa in 1720?
+Baji Rao I
+At what age did Baji Rao I become Peshwa?
+20
+What tactics was Baji Rao I known for?
+Guerrilla tactics
+What did Baji Rao I say about the Mughals?
+'Let us strike at the trunk of the withering tree and the branches will fall by themselves.'
+What territories did Baji Rao I conquer from the Portuguese?
+Bassein and Salsette (1739)
+Which territories did Baji Rao I get from the Nizam-ul-Mulk through the treaty of Doraha Sarai?
+Malwa and Bundelkhand (1738)
+Who succeeded Baji Rao I as Peshwa in 1740?
+Balaji Baji Rao (Nana Saheb)
+After the death of Shahu in 1749, who managed all state affairs?
+Balaji Baji Rao
+What agreement did Balaji Baji Rao have with the Mughal emperor Ahmad Shah?
+To protect the Mughal empire in return for Chauth (1752)
+What event marked the end of Maratha power in 1761?
+Third Battle of Panipat
+Who succeeded Balaji Baji Rao after his death?
+Madhav Rao (1761-72), Narayan Rao (1772-73), Sawai Madhav Rao (1773-95), and Baji Rao II (1795-1818)
+What was the cause of the First Anglo-Maratha War (1775-82)?
+Raghunath Rao's claim for Peshwaship
+What was the outcome of the Convention of Wadgaon (1779)?
+British signed it after being defeated by Marathas
+Which treaty renounced the cause of Raghunath Rao?
+Treaty of Salbai (1782)
+What treaty did the Maratha Peshwa sign in 1802?
+Subsidiary Alliance Treaty of Bassein
+What marked the beginning of the Third Anglo-Maratha War (1817-18)?
+British moving against Pindaris
+Who was determined to proclaim British paramountcy in India during the Third Anglo-Maratha War?
+Lord Hastings
+What was the result of the Third Anglo-Maratha War?
+Marathas were decisively defeated
+In what year did the Danish company sell all their settlements in India to the British?
+1845
+Who discovered the Cape route from Europe to India?
+Vasco da Gama
+Which three trading stations were established by the Portuguese in India?
+Calicut, Cochin, Cannanore
+Who introduced the policy of 'Blue water'?
+Francisco de Almeida
+Who captured Goa from the ruler of Bijapur in 1510?
+Alfonso d' Albuquerque
+In 1661, who gave Bombay to Charles II of England as dowry?
+The King of Portugal
+Which territories did the Marathas capture from the Portuguese in 1739?
+Salsette and Bassein
+What territories were retained by the Portuguese in India till 1961?
+Goa, Diu, Daman
+When was the Dutch East India Company formed?
+March, 1602
+Name the Dutch factories set up in India.
+Masulipatnam, Pulicat, Surat, Bimilipatam, Karaikal, Chinsura, Kasimbazar, Baranagore, Patna, Balasore, Negapatam, Cochin
+After which battle did the Dutch concede to the English in 1759?
+Battle of Bedera
+
+
+Who was the first Englishman to arrive in India before the establishment of the English East India Company?
+When was the English East India Company formed?
+Who sought permission to open a factory at Surat in 1609?
+When was the Farman issued by Jahangir allowing the English to build a factory at Surat?
+Who came to India as an ambassador of James I in 1615 to obtain permission for trade and factories?
+Who was the first governor of Bombay under the English East India Company (1669-1677)?
+Who established a factory at Sutanati in 1690, leading to the growth of Calcutta?
+In what year did the British Parliament pass a resolution giving equal trade rights in the East?
+What was the name of the rival company formed in 1698?
+When did the final amalgamation of the English East India Company occur?
+When was 'The united company of Merchants of England Trading to the East Indies' formed?
+When was the French East India Company formed under state patronage?
+Who established the first French factory at Surat in 1668?
+In what year did Dupleix become the French governor in India, leading to the Anglo-French conflict?
+What were the names of the French territories occupied by Lenoir and Dumas between 1720 and 1742?
+Which war marked the beginning of the Anglo-French conflict in India?
+Which battle saw the defeat of the Nawab of Carnatic's army by the French under Dupleix?
+What treaty ended the First Anglo-French war (1746-48)?
+Who aligned with Muzaffar Jung and Chanda Sahib in the Second Anglo-French war (1749-54)?
+Which treaty ended the Second Anglo-French war in 1754?
+In the Third Anglo-French war (1758-63), who captured Fort St. David for the French?
+When was the Treaty of Paris signed, ending the Third Anglo-French war in India?
+Who was the first Subedar (governor) of Bengal appointed by Mughal emperor Farrukh Siyar in 1717?
+In which year did Murshid Quli Khan transfer the capital of Bengal from Dacca to Murshidabad?
+Who was the son-in-law of Murshid Quli Khan and the governor of Bihar from 1733?
+Who murdered Sarfaraj Khan, the son of Shujauddin, in 1740?
+Who prevented the English and the French from fortifying their factories at Calcutta and Chandranagore?
+Who succeeded Alivardi Khan as the Nawab of Bengal in 1756?
+When was the Battle of Plassey fought?
+Who betrayed Sirajuddaula in the Battle of Plassey?
+Who was granted undisputed right to free trade in Bengal, Bihar, and Orissa after the Battle of Plassey?
+Who succeeded Mir Jafar as the Nawab of Bengal in 1760?
+Which battle saw the defeat of Mir Qasim, Shujauddaula, and Shah Alam II by Munro?
+Who ended the Dual Government of Bengal in 1772?
+Who began his career as a soldier in the Mysore state and defeated the British in the First Anglo-Mysore war (1766-69)?
+In which war did Warren Hastings attack the French port Mahe in Haidar Ali's territory?
+Who succeeded Haidar Ali as the ruler of Mysore in 1782?
+Which treaty ended the Second Anglo-Mysore war in 1784?
+
+People:
+John Mildenhall
+Captain William Hawkins
+Jahangir
+Sir Thomas Roe
+Charles II
+Gerald Aungier
+Job Charnock
+Colbert
+Francois Caron
+Lenoir
+Dumas
+Dupleix
+Mir Jafar
+Mir Bakshi
+Manikchand
+Amichand
+Jagat Seth
+Khadim Khan
+Mir Qasim
+Haidar Ali
+Robert Clive
+Count de Lally
+Munro
+Warren Hastings
+Krishnaraja I
+Tipu Sultan
+Places:
+India
+Surat
+Jahangir's court
+Bombay
+Sutanati
+Calcutta
+Fort William
+Mahe
+Yanam
+Karaikal
+Carnatic
+St. Thome
+Madras
+Pondicherry
+Fort St. David
+Wandiwash
+Aix-La-Chapelle
+Hyderabad
+Arcot
+Bengal
+Orissa
+Murshidabad
+Dacca
+Bihar
+Kasimbazar
+Chandranagore
+Awadh
+Allahabad
+Mysore
+Dindigul
+Madras (city)
+Mahe (French port)
+Arcot (capital of Carnatic state)
+Porto Novo
+Mangalore
+Companies and Organizations:
+English East India Company
+'The Governor and Company of Merchants of London Trading into the East Indies'
+'The English Company of Merchants Trading to the East Indies'
+'The united company of Merchants of England Trading to the East Indies'
+French East India Company
+Treaties and Wars:
+Treaty of Aix-La-Chapelle
+First Anglo-French war
+Treaty of Pondicherry
+Third Anglo-French war
+Treaty of Paris
+Carnatic Wars
+Treaty of Mangalore
+First Anglo-Mysore war
+Second Anglo-Mysore war
+Other:
+Farman
+Farman
+Subedar
+Carnatic/Arcot
+Anglo-French Conflict
+Treaty of Buxar
+Dual Government of Bengal
+
+
+Question
+Answer
+Who was the first Englishman to arrive in India before the establishment of the English East India Company?
+John Mildenhall in 1599
+When was the English East India Company formed?
+1600
+Who sought permission to open a factory at Surat in 1609?
+Captain William Hawkins
+When was the Farman issued by Jahangir allowing the English to build a factory at Surat?
+1613
+Who came to India as an ambassador of James I in 1615 to obtain permission for trade and factories?
+Sir Thomas Roe
+Who was the first governor of Bombay under the English East India Company (1669-1677)?
+Gerald Aungier
+Who established a factory at Sutanati in 1690, leading to the growth of Calcutta?
+Job Charnock
+In what year did the British Parliament pass a resolution giving equal trade rights in the East?
+1694
+What was the name of the rival company formed in 1698?
+'The English Company of Merchants Trading to the East Indies'
+When did the final amalgamation of the English East India Company occur?
+1708
+When was 'The united company of Merchants of England Trading to the East Indies' formed?
+1708
+When was the French East India Company formed under state patronage?
+1664
+Who established the first French factory at Surat in 1668?
+Francois Caron
+In what year did Dupleix become the French governor in India, leading to the Anglo-French conflict?
+1742
+What were the names of the French territories occupied by Lenoir and Dumas between 1720 and 1742?
+Mahe, Yanam, Karaikal
+Which war marked the beginning of the Anglo-French conflict in India?
+Carnatic Wars
+Which battle saw the defeat of the Nawab of Carnatic's army by the French under Dupleix?
+St. Thome Battle
+What treaty ended the First Anglo-French war (1746-48)?
+Treaty of Aix-La-Chapelle (1748)
+Who aligned with Muzaffar Jung and Chanda Sahib in the Second Anglo-French war (1749-54)?
+Dupleix
+Which treaty ended the Second Anglo-French war in 1754?
+Treaty of Pondicherry/Treaty by Godehu
+In the Third Anglo-French war (1758-63), who captured Fort St. David for the French?
+Count de Lally
+When was the Treaty of Paris signed, ending the Third Anglo-French war in India?
+1763
+Who was the first Subedar (governor) of Bengal appointed by Mughal emperor Farrukh Siyar in 1717?
+Murshid Quli Khan
+In which year did Murshid Quli Khan transfer the capital of Bengal from Dacca to Murshidabad?
+1719
+Who was the son-in-law of Murshid Quli Khan and the governor of Bihar from 1733?
+Shujauddin
+Who murdered Sarfaraj Khan, the son of Shujauddin, in 1740?
+Alivardi Khan
+Who prevented the English and the French from fortifying their factories at Calcutta and Chandranagore?
+Alivardi Khan
+Who succeeded Alivardi Khan as the Nawab of Bengal in 1756?
+Sirajuddaula
+When was the Battle of Plassey fought?
+23 June, 1757
+Who betrayed Sirajuddaula in the Battle of Plassey?
+Mir Jafar, Manikchand, Amichand, Jagat Seth, Khadim Khan
+Who was granted undisputed right to free trade in Bengal, Bihar, and Orissa after the Battle of Plassey?
+Mir Jafar
+Who succeeded Mir Jafar as the Nawab of Bengal in 1760?
+Mir Qasim
+Which battle saw the defeat of Mir Qasim, Shujauddaula, and Shah Alam II by Munro?
+Battle of Buxar (1764)
+Who ended the Dual Government of Bengal in 1772?
+Warren Hastings
+Who began his career as a soldier in the Mysore state and defeated the British in the First Anglo-Mysore war (1766-69)?
+Haidar Ali
+In which war did Warren Hastings attack the French port Mahe in Haidar Ali's territory?
+Second Anglo-Mysore war (1780-84)
+Who succeeded Haidar Ali as the ruler of Mysore in 1782?
+Tipu Sultan
+Which treaty ended the Second Anglo-Mysore war in 1784?
+Treaty of Mangalore (1784)
+
+
+
+
