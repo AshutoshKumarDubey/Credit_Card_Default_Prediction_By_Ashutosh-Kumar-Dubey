@@ -2844,6 +2844,55 @@ Abdul Hassan
 Ustad Mansur
 Bishandas
 
+Question	Answer
+1. What religious policies did Aurangzeb implement in 1659?	- Forbade inscription of kalama on the coins. Forbade celebration of Navroz Festival. Appointment of Muhatasib (Regulator of moral character).
+2. In 1663, what custom did Aurangzeb ban?	- Ban on Sati custom.
+3. What Hindu-related restriction did Aurangzeb impose in 1668?	- Ban on Hindu Festival.
+4. What actions did Aurangzeb take in 1669 regarding court activities?	- Ban on Jharokha darshan. Forbade music in the court.
+5. In 1670, what practice did Aurangzeb ban related to the emperor himself?	- Ban on Tuladan (weighing of the emperor).
+6. What did Aurangzeb reintroduce in 1679?	- Re-introduction of Jaziya.
+7. During Aurangzeb's rule, what happened to the Hindu Mansabdars in relation to Jaziya?	- Jaziya was re-introduced, but Hindu Mansabdars maintained their high proportion during his rule.
+8. Name the important causes of the decline of the Mughal Empire after Aurangzeb.	- Aurangzeb's Rajputa, Deccan, and religious policies. Weak successors incompetent in administration and military. Wars of succession. Factionalism among nobility after Aurangzeb. Jagirdari crisis. Growth of regional powers (Marathas, Bengal, Hyderabad, Avadh, Mysore). Foreign invasions by Nadir Shah (1739) and Abdali. British conquest of India.
+9. Who were the later Mughal emperors after Aurangzeb?	- Bahadur Shah I (1707-1712). Jahandar Shah (1712-1713). Farrukh Siyar (1713-1719). Muhammad Shah (1719-1748). Ahmed Shah (1748-1754). Alamgir II (1754-1759). Shah Alam II (1759-1806). Akbar II (1806-1837). Bahadur Shah II (1837-1857).
+10. What was Bahadur Shah I's original name and title?	- Original Name: Muazzam. Title: Shah Alam I.
+11. Who helped Jahandar Shah ascend the throne, and what did he abolish during his rule?	- Helped by Zulfikar Khan. Abolished Jaziya.
+12. Who assisted Farrukh Siyar in ascending the throne, and who were the key figures?	- Assisted by Sayyid brothers - Abdullah Khan and Hussain Khan.
+13. What significant event occurred during Muhammad Shah's rule in 1738-39?	- Nadir Shah raided India, taking away Thakht-i-Taus (the peacock throne) and Kohinoor diamond.
+14. What happened during Ahmed Shah's rule in 1748-1754 regarding the Mughal territories?	- Ahmad Shah Abdali marched towards Delhi, and Mughals ceded Punjab and Multan.
+15. Who occupied Delhi during Alamgir II's rule, and what followed?	- Ahmad Shah occupied Delhi, and later, Delhi was plundered by Marathas.
+16. Why couldn't Shah Alam II enter Delhi for 12 years during his reign?	- Nazib Khan became very powerful in Delhi.
+17. What was Akbar II's status during his reign?	- Pensioner of East India Company.
+18. What happened to Bahadur Shah II during the 1857 revolt?	- Last Mughal Emperor made premier during the revolt, deported to Rangoon in 1858, and died in 1862.
+19. How was the Mughal empire administratively structured?	- Divided into Subas, further subdivided into Sarkar, Pargana, and Gram. Other territorial units: Khalisa (royal land), Jagirs (autonomous rajyas), and Inams (gifted lands). 15 Subas during Akbar's reign, increased to 20 under Aurangzeb.
+20. What was the Mansabdari system introduced by Akbar?	- A system indicating the rank of its holder, both civil and military. Dual Mansab: Zat (personal rank and pay status) and Sawar (number of horsemen to maintain). Held by nobility, bureaucracy, and military.
+21. What were the three categories of Mansabdars in the Mughal system?	- Mansabdars, Amirs, and Amir-i-umda.
+22. How were Mansabdars paid, and what were the two types?	- Dual payment mode: Naqdi (cash) and Jagirdar (land).
+23. What did Jahangir add to the Mansabdari system?	- Duaspah Sih-aspah system: Sawar rank could be raised without raising Zat rank.
+24. What system was added by Shahjahan, and what crisis did it cause?	- Added Jama-Dami or Mahana Zagir (Monthly Scale) system. Caused Jagirdari and agrarian crisis, contributing to the decline of the Mughals.
+25. What were the methods of revenue collection in the Mughal empire?	- Kankut (estimate), Rai (yield per unit area), Zabti (based on crop yields).
+26. What was Dahsala Bandobast or Zabti?	- Standard method of collection based on rates of crops determined after a 10-year assessment, pioneered by Todar Mal.
+27. What was the Jagirdari system in the Mughal administration?	- Assignment of land in proportion to a Jagirdar's salary. Every Mansabdar entitled to a jagir if not paid in cash.
+28. What were Madad-i-maash, Suyur ghal, or Inam in the Mughal administration?	- Land grants to people for religious assignment or fervor.
+29. Name two mosques built by Babur and their locations.	- Kabulibagh in Panipat. Sambhal in Rohilakhand.
+30. Who built Humayun's tomb, and by whom was it built?	- Built by Haji Begum, Humayun's widow.
+31. What is the unusual building at Fatehpur Sikri, and what is its plan reminiscent of?	- Panch Mahal, with a plan reminiscent of a Buddhist vihara.
+32. What are the Indian-style buildings in Fatehpur Sikri built by Akbar?	- Mariam's palace, Diwan-i-Aam, Diwan-i-khas.
+33. What is the significance of Buland Darwaja, and when was it built?	- Main entrance to Fatehpur Sikri, built after the victory in Gujarat.
+34. What is notable about Salim Chisti's tomb, and what technique was first used in Itimad-ud-daula?	- Salim Chisti's tomb: First Mughal building in pure marble. Itimad-ud-daula: First use of pietra dura technique (floral designs of semiprecious stones).
+35. What did Jahangir introduce regarding the use of marble in architecture?	- Vigorous use of marble instead of red sandstone, and pietra dura for decorative purposes.
+36. What notable structures did Jahangir build in Lahore?	- Moti Masjid and his mausoleum at Shahdara.
+37. What reached its climax in Taj Mahal during Shahjahan's reign?	- Mosque building activity.
+38. Name important buildings built by Shahjahan in Agra.	- Moti Masjid (only Mosque of marble). Khaas Mahal. Mussmman Burz (Jasmine Palace).
+39. What did Aurangzeb build in the Red Fort, and what is the only monument associated with him?	- Moti Masjid. Only monument associated: Bibi ka Makbara (tomb of his wife Rabbia-ud-daura in Aurangabad).
+40. What mosque did Aurangzeb build in Lahore?	- Badshahi Masjid.
+41. Name two master painters in Humayun's service.	- Mir Syed Ali and Abdus Samad.
+42. Who were the famous painters of Akbar's court?	- Daswant and Basawan.
+43. Name three famous painters of Jahangir's court.	- Abdul Hassan, Ustad Mansur, and Bishandas.
+44. What technique did Nurjahan introduce in Itimad-ud-daula?	- First use of pietra dura (floral designs made up of semiprecious stones).
+45. What did Shahjahan lay the foundations of in 1637, and what structures did he build there?	- Shahjahanabad. Built the Red Fort and Takht-i-Taus (Peacock throne).
+
+
+
 Who was Shivaji?
 What did Shivaji inherit from his father in 1637?
 What forts did Shivaji conquer?
